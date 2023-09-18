@@ -1,7 +1,7 @@
 
 ### Hewo (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧  I am CJ
 # 💫 About Me:
-🔭 I’m currently starting my Cybersecurity career<br><br>🌱 I’m currently learning COBOL<br><br>⚡ Fun fact: I code better at night
+🔭 I’m currently starting my Cybersecurity career<br><br>🌱 I’m currently learning COBOL<br><br>⚡ Fun fact: IDK what I'm doing in GitHub ＞︿＜
 
 
 ## 🌐 Socials:
